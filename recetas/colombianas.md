@@ -1,5 +1,6 @@
 1. Bueñuelos: 
 La receta esta muy rica
+La receta es muy facil solo tenemos que fritar la masa que venden en la esquina
 
 
 2. Tamales:1 cebolla grande picada
