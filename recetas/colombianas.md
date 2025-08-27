@@ -1,17 +1,5 @@
 1. Bueñuelos: 
-Aceite canola o vegetal para freír
-1 + ¾ de taza de fécula de maíz
-¼ de taza de harina de yuca
-1 taza de queso costeño o feta rallado
-1 taza de queso fresco
-1 huevo
-½ de cucharadita de polvo de hornear
-2 cucharadas de azúcar
-Una pizca de sal
-5 cucharadas de leche o más si es necesario
-Coloque todos los ingredientes, excepto el aceite en un tazón mediano y mezcle bien con las manos hasta obtener una masa suave y formar bolitas.
-En una olla muy profunda, caliente el aceite vegetal a 300 ° F . Colocar con cuidado las bolas en el aceite caliente. Freír hasta que estén dorados, unos 3 a 4 minutos.
-Retirar del aceite y escurrir en un plato cubierto con toallas de papel. Servir.
+La receta es muy facil solo tenemos que fritar la masa que venden en la esquina
 
 
 2. Tamales:1 cebolla grande picada
